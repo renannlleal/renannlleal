@@ -10,7 +10,6 @@ Meu nome é Renan Leal.
 renan.leal.souza@escola.pr.gov.br
 
 
-![](https://media.tenor.com/DpJdyKQKgYkAAAAi/cat-jump.gif)
-
+![](https://media.tenor.com/_hUq1BSUsiMAAAAC/cat-cute.gif)
 
 
